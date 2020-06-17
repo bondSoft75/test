@@ -1,1 +1,1 @@
-https://www.yahoo.com/
+http://gametopapp.com/inv
