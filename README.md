@@ -1,1 +1,1 @@
-yahoo.com
+https://yahoo.com
